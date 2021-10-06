@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MyNameIsRinax
+- 👀 I’m interested in you
+- 🌱 I’m currently learning you
+- 💞️ I’m looking to collaborate on you
